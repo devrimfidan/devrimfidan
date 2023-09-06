@@ -4,8 +4,6 @@ Passionate about international education, technology, programming, CRM, and digi
 
 With a background in international student recruitment and marketing tech, I'm committed to excellence and staying updated with the latest developments.
 
-Join me on this journey of learning, growth, and connection 🌟. Let's make the world of tech and education a little brighter! 🌈
-
 ## Expertise 🚀
 
 - International Education 🌏
