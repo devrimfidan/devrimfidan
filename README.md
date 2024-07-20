@@ -7,10 +7,8 @@ With a background in international student recruitment and marketing tech, I'm c
 ## Expertise 🚀
 
 - International Education 🌏
-- Tech 🖥️
-- Programming 💻
-- CRM 📊
 - Digital Marketing 🚀
+- CRM 📊
 
 ## Interests 🌟
 
